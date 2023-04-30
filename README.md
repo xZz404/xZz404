@@ -1,2 +1,2 @@
-- Hi, I’m @xZz404
+- Hi, stranger. I’m @xZz404.
 - I can't do anything special.
