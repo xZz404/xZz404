@@ -1,3 +1,4 @@
 - Hello, Explorer. I'm @xZz404.
 - I don't know much about anything, but I might be looking for something.
 - Don't be too hard on people~
+- Bye!
